@@ -1,2 +1,3 @@
 # 20commits
 Pure natty, No Vc or KOL .this is for the people
+lets get it going
